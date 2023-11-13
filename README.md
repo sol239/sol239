@@ -1,1 +1,1 @@
-CS at MMF UK (2023-)
+CS at MFF UK (2023-)
