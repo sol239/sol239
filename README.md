@@ -1,1 +1,1 @@
-- CS at MFF UK (2023-)
+- Currently studying Computer Science at Charles University (MFF UK)
